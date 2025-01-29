@@ -3,7 +3,7 @@
                                                  
 
 
-                                      A Passionate Student and Editor from Indian 💛❤️
+                                      A Passionate Student and Editor from India 💛❤️
 
 
 
