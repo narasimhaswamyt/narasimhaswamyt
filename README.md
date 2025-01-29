@@ -1,7 +1,7 @@
-## Hi I am Narasimha Swamy T 
+## Hi 🙏 I am Narasimha Swamy T 
 
 
-# 💫 About Me:
+<center>#A Passionate Student and Editor from Karnataka💛❤️</center>
 🌱 I’m currently persuing BCA Graduation 🎓<br><br>👨‍💻 Soft skills, Goal oriented, Good Learner and Listener.<br><br>📽️ I regularly upload videos on  my Instagram Handel .<br><br>💬 Ask me about myself, editing tools, intrest.<br><br>📫 Reach out to me at narasimhanayaka227@gmail.com
 
 
